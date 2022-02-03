@@ -1,0 +1,1 @@
+# adatelemzes_2022
